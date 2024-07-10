@@ -1,0 +1,2 @@
+# -g-venli-i-
+Herşey 
